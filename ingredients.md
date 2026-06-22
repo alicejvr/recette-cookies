@@ -6,4 +6,6 @@
 - 100g de chocolat noir
 - 1 cuillère à café de sel
 - 1 cuillère à café de levure chimique
+- 50ml d'eau
+
 - 20ml de lait
